@@ -1,3 +1,3 @@
 # landing-page
 
-Onyekachi Nwakaihe is a seasoned developer who has a passion for solving problems by building solutions that serves thousands of users.
+Onyekachi Nwakaihe is a seasoned developer, with a photographic creativity that captures a problems from all angles and solves them by building solutions that serves thousands of users.
